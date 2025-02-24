@@ -1,4 +1,4 @@
-# Finpecia 保康絲 1mg 防脫口服 100片(10片x10) / 100天 Finasteride [香港代購](https://haircores.com）
+# Finpecia 保康絲 1mg 防脫口服 100片(10片x10) / 100天 Finasteride [香港代購](https://haircores.com)
 
 網站：https://haircores.com/
 
